@@ -16,6 +16,9 @@ btw heres a qucik guide on how to use this softwrare:
 click to draw :3 
 pwess entew to clear and then hit CRTL + R to restart else it wont do shit
 
+btw tell me if you guyes want moar stuff or smth and if theres any bugs or stuff
+ummm and uhhhhhhhhhhhhhhhhhhhhhhhhhh idk what else to say so enjoy!
+
 thankyouu for reading this :3
 
 only 754 bytes for the main sfotware btw :D
