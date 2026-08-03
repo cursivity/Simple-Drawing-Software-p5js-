@@ -17,3 +17,5 @@ click to draw :3
 pwess entew to clear and then hit CRTL + R to restart else it wont do shit
 
 thankyouu for reading this :3
+
+only 754 bytes for the main sfotware btw :D
